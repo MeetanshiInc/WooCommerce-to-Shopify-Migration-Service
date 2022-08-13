@@ -1,5 +1,5 @@
 # WooCommerce to Shopify Migration Service
-Seek Meetanshi’s hassle-free [***WooCommerce to Shopify Migration Service***](https://meetanshi.com/woocommerce-to-shopify-migration-service.html)ensuring utmost data security while migration.
+Seek Meetanshi’s hassle-free [***WooCommerce to Shopify Migration Service***](https://meetanshi.com/woocommerce-to-shopify-migration-service.html) ensuring utmost data security while migration.
 
 WooCommerce to Shopify Migration service by Meetanshi facilitates store owners to shift their online shop from WooCommerce to Shopify smoothly with almost no efforts. People may opt to migrate to Shopify from the WooCommerce store due to plenty of reasons.
 
